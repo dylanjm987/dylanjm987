@@ -1,5 +1,3 @@
-- Hi, I’m @dylanjm987
-- I garden, write a bit, help out with competitive speech & debate, and am going to school for IT
 - Feel free to email d01j01m@gmail.com
 
 <!---
